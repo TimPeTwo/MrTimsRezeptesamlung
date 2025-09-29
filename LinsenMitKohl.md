@@ -17,7 +17,7 @@
 
 ## Zubereitung
 * Linsen kochen, bis sie weich sind.
-* Zweiebel in kleine Würfel schneiden
+* Zwiebel in kleine Würfel schneiden
 * Knoblauch pressen
 * Ingwer hobeln
 * Spitzkohl in Streifen schneiden
